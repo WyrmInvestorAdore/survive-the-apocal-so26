@@ -1,4 +1,4 @@
-#  
+#  survive the apocalypse Script advanced offers the most advanced survive the apocalypse Script, with speed and auto-sell. Perfect for dominating any
 
 
 
